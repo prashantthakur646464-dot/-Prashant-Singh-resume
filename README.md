@@ -14,7 +14,7 @@ Senior Sales Advisor | Insurance & Investment Consultant | Wealth Management | B
 <br/>
 📞 +91 7017056586
 <br/>
-🔗 LinkedIn: [Add Your LinkedIn URL](YOUR_LINKEDIN_URL)
+🔗 LinkedIn: [[Add Your LinkedIn URL](YOUR_LINKEDIN_URL)](https://www.linkedin.com/in/prashant-singh-b2b617302?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
 </p>
 
 🎯 Professional Summary
@@ -151,10 +151,10 @@ Note: Regulatory permissions differ by product, employer, distribution channel, 
 💼 Professional Experience
 Senior Sales Advisor – Insurance & Investments
 
-[CURRENT COMPANY NAME]
+Insurancemarket.ae UAE
 
-📅 [MONTH YEAR – PRESENT]
-📍 [LOCATION – INDIA / DUBAI]
+📅 [SEPTEMBER 2026 – PRESENT]
+📍 [Remote – INDIA / DUBAI]
 
 Key Responsibilities
 
@@ -182,10 +182,10 @@ Developed 50+ corporate or referral relationships.
 Recognized for [ADD AWARD OR PERFORMANCE ACHIEVEMENT].
 Sales Advisor / Insurance Consultant
 
-[PREVIOUS COMPANY NAME]
+Policybazaar.ae UAE 
 
-📅 [MONTH YEAR – MONTH YEAR]
-📍 [LOCATION]
+📅 April 2025 – August 2026
+📍 Gurugram ,India
 
 Key Responsibilities
 
@@ -246,9 +246,8 @@ Add completed certifications here:
 Only list certifications actually completed. Certifications do not automatically authorize regulated financial activities.
 
 🗣️ Languages
-English – [PROFICIENCY]
-Hindi – [PROFICIENCY]
-Arabic – [PROFICIENCY, IF APPLICABLE]
+English –Excellent
+Hindi – Excellent
 🌟 Additional Information
 Category	Details
 Current Location	Mathura, Uttar Pradesh, India
@@ -271,7 +270,7 @@ Senior Sales Advisor – Insurance & Investments
 📧 Email: Prashantthakur646464@gmail.com
 📞 Phone: +91 7017056586
 📍 Location: Mathura, Uttar Pradesh, India
-🔗 LinkedIn: [YOUR LINKEDIN PROFILE URL]
+🔗 LinkedIn: [[YOUR LINKEDIN PROFILE URL]](https://www.linkedin.com/in/prashant-singh-b2b617302?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
 💼 Career Opportunities
 
 Open to opportunities in:
